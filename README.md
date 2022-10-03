@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AdminCod3R, im an hyper-active, very dum, and mischievous kid.
+- 👋 Hi, I’m @UN1Xgh, im an hyper-active, very dum, and mischievous kid.
 - 👀 I’m interested in Coding, Neural Networks, Ai, Siri Shortcuts, and computer building.
 - 🌱 I’m currently learning on how to code better, and how to build somewhat-advanced computers.
 - 📫 How to reach me: i can be emailed at Pixel_light@outlook.com
